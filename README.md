@@ -1,1 +1,0 @@
-# covidhoax.best
